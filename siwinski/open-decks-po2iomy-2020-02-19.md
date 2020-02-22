@@ -2,9 +2,9 @@
 
 ----
 
-Genres: *#house* *#progressive-house* *#techno* 
-Gear: 2 x Technics SL 1210 + DJM 900NX2
-Event: [Open Decks by Kubiński](https://www.facebook.com/events/187620942553204)
+Genres: *#house* *#progressive-house* *#techno*  
+Gear: 2 x Technics SL 1210 + DJM 900NX2  
+Event: [Open Decks by Kubiński](https://www.facebook.com/events/187620942553204)  
   
 [![Siwinski - Open Decks at Po2iomy (2020-02-19)](open-decks-po2iomy-2020-02-19_400x400.jpg)](https://1drv.ms/u/s!AmzuuXrjf51v3rxBj5cgeKr28D8qhA)  
 
