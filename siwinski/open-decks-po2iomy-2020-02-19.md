@@ -9,7 +9,7 @@ Event: [Open Decks by Kubiński](https://www.facebook.com/events/187620942553204
 [![Siwinski - Open Decks at Po2iomy (2020-02-19)](open-decks-po2iomy-2020-02-19_400x400.jpg)](https://1drv.ms/u/s!AmzuuXrjf51v3rxBj5cgeKr28D8qhA)  
 
 You can [**DOWNLOAD (166MB, 1h 13min)**](https://1drv.ms/u/s!AmzuuXrjf51v3rxBj5cgeKr28D8qhA) 
-this set and listen on your device**.
+this set and listen on your device.
 
 **Tracklist:**  
  
