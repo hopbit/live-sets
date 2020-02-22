@@ -6,4 +6,4 @@
 
 ---
 
-[More Sets](https://hopbit.github.io/DJ/)
+[More Sets](https://hopbit.github.io/sets/)
