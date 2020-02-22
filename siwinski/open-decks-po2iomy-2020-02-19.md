@@ -1,4 +1,4 @@
-# Open Decs Po2iomy (2020-02-19)
+# Open Decks Po2iomy (2020-02-19)
 
 ----
 
